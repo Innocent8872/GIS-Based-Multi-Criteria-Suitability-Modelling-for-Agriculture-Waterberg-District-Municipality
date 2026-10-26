@@ -1,0 +1,1 @@
+# GIS-Based-Multi-Criteria-Suitability-Modelling-for-Agriculture-Waterberg-District-Municipality
